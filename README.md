@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on BEECLOUD,BOSD<br>👯 I’m looking to collaborate on @thangmc2374 <br>🤝 I’m looking for help with -------<br>🌱 I’m a minecraft plugin dev<br>💬 Ask me about minecraft plugin discord bot ,etc i know<br>⚡ Fun fact im a femboy
+🔭 I’m currently working on BEECLOUD,BOSD<br>👯 I’m looking to collaborate on @thangmc2374 <br>🤝 I’m looking for help with -------<br>🌱 I’m a minecraft plugin dev<br>💬 Ask me about minecraft plugin discord bot ,etc i know<br>⚡ Fun fact im a frog
 
 
 ## 🌐 Socials:
